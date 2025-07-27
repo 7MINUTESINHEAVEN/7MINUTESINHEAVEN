@@ -1,5 +1,5 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=elanourr&color=grey&label=witnesses)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-<img width="400" height="358" alt="77ab7767cf9fa2ac4914d205d8a3dff7" src="https://github.com/user-attachments/assets/78f74af0-6132-43b1-bc90-b3d5681443cc" /> <--⠀⠀ ellen top remi bottom
+<img width="400" height="358" alt="77ab7767cf9fa2ac4914d205d8a3dff7" src="https://github.com/user-attachments/assets/78f74af0-6132-43b1-bc90-b3d5681443cc" />⠀⠀ [rentry](https://rentry.co/prumanolegacy)
 ![tumblr_f1f9d21533892c971856fb20b8ec6810_f21e4e06_400](https://github.com/user-attachments/assets/ff8271f0-4bc1-4a1d-af4f-0a5f8981878e)![tumblr_c4ce04fb435d425ac4ad2d81da99021c_b6ff0bb9_400](https://github.com/user-attachments/assets/9238a892-416e-4cc4-8345-44d7962c6c01)
 ![tumblr_dc6ce87f82774ff8be8eb86a5fa89091_da2fae37_400](https://github.com/user-attachments/assets/e30e5c17-a412-48ad-a701-9bb38c6a34c9)
 ![tumblr_e9df5f06f919bb143c43dc36b72cf784_0373d46e_400](https://github.com/user-attachments/assets/34d8fbb3-4b04-4dc6-8a22-4466536442c9)
